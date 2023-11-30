@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hafxhak
-- 👀 I’m interested in "BLOCKCHAIN, _.SOL , _.html , JS" 
+- 👀 I’m interested in "BLOCKCHAIN,
 - 📫 How to reach me :
 - 1384hakbari@gmail.com 
 
